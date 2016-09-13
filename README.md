@@ -1,1 +1,1 @@
-[amogh.github.io](https://www.amoghsa.github.io)
+[amoghsa.github.io](https://www.amoghsa.github.io)
